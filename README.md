@@ -17,4 +17,4 @@ also a short video of website demostration is also there
 .
 .
 .
-HOPE YOU WILL LIKE IT （˶′◡‵˶）
+HOPE YOU WILL LIKE IT （˶′◡‵˶） 
